@@ -16,4 +16,5 @@ https://gretil.sub.uni-goettingen.de/gretil/2_prakrt/spaucaru.htm
 
 参考文献
 Bhayani, Harivallabha Chunulal (1953-1960) Paümacariu of Kavirāja Svayambhudeva: A Pre-tenth Century Puranic Epic in Apabhraṃśa. 3 vols. Bombay: Bharatiya Vidya Bhavan.
+
 Kumāra, Nareśa (1987) Apabhraṃśa-Hindī-Kośa. 2 vols. Gāziyābād: Indo-Vision Private Lmt.
